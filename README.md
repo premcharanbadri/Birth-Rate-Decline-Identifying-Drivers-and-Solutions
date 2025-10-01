@@ -1,4 +1,4 @@
-## U.S. Birth Rate Decline: Identifying Drivers and Solutions
+## Birth Rate Decline: Identifying Drivers and Solutions
 
 ### Project Overview 🚀
 
